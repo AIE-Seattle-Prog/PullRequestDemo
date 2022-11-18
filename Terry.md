@@ -1,4 +1,4 @@
 # Terry
 
-Terry enjoys oranges and long walks
-on the beach.
+Terry enjoys oranges and playing with the Steam Deck on
+the beach.

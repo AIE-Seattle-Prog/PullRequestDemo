@@ -1,3 +1,3 @@
-Jonthan 
+Jonathan 
 
 I enjoy playing games

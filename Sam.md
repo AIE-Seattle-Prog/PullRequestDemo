@@ -1,0 +1,1 @@
+Hi! I'm into AI in video games and I play Atilla the Hun in Civ V. I also like horror games and DOOM.
